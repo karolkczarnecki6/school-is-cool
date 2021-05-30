@@ -1,0 +1,4 @@
+ijijijijsdsdsdsodksaasssss$
+asasss
+
+czemu ?
